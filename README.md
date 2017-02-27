@@ -1,1 +1,1 @@
-it just is a poor_car;
+it's just a truck
